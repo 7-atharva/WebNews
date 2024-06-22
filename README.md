@@ -7,4 +7,4 @@ Welcome to my website, your comprehensive source for daily updates on current af
 ![WhatsApp Image 2024-06-22 at 9 17 15 AM](https://github.com/7-atharva/WebNews/assets/111700367/81daa24c-9dc6-4e53-a164-888fa7baedcf)
 
 
-![WhatsApp Image 2024-06-22 at 9 17 15 AM](https://github.com/7-atharva/WebNews/assets/111700367/deb44fad-1de9-4e58-a144-80aa56197ec2)
+![WhatsApp Image 2024-06-22 at 9 17 15 AM (1)](https://github.com/7-atharva/WebNews/assets/111700367/c47ef78e-6e88-464d-ae79-fca1f3cdbf40)
